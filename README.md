@@ -1,16 +1,19 @@
-## Hi there 👋
+## Chu Thị Bồn Cảnh Viên - Chữ & Cây
 
-<!--
-**chuthiboncanhvien/chuthiboncanhvien** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Chào mừng quý vị và các bạn hữu đến với không gian trực tuyến của Chu Thị Bồn Cảnh Viên – nơi niềm đam mê và nghệ thuật bonsai truyền thống được ươm mầm và tỏa sáng.
 
-Here are some ideas to get you started:
+- Địa chỉ: Xóm 24 Xã Xuân Tín, huyện Thọ Xuân, tỉnh Thanh Hóa.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0901 772 219
+
+- Maps: https://g.co/kgs/Zmyg7x9
+
+- Website: https://chuthiboncanhvien.com/
+
+https://x.com/boncanhvien
+
+https://www.pinterest.com/chuthiboncanhvien/
+
+https://vimeo.com/chuthiboncanhvien
+
+https://www.tumblr.com/chuthiboncanhvien
